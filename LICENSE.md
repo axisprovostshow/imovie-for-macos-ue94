@@ -1,4 +1,4 @@
-# 
+# Enhance iMovie for macOS with ultimate iMovie for macOS Automation | multi-cam-editing + noise-reduction, the #1 automation. Includes multi-cam-editing and noise-reduction for a
 
 
 
